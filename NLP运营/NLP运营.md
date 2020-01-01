@@ -18,5 +18,5 @@ https://www.douban.com/group/443985/?ref=sidebar  Life Topic Club-晓城资源�
 # 训练表格 - 自律训练
 
 
-# 冥想 
+# 冥想 + 观想
 2020 01 01 - 10min 
