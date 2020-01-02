@@ -1,6 +1,10 @@
 
 # 12 Week MENTORSHIP Program
 
+# 调整策略 - strategy to scale up 放大营销 
+
+比如 打工是 1:1 一辈子的打工。 不如营销放大挣钱，你看是不是思维和行为都放大了？
+
 # NLP-Project
 关于NLP以及NLP之外的框架。
 
