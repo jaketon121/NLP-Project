@@ -8,3 +8,7 @@ https://www.youtube.com/watch?v=k-PCUDsnOKk
 
 2 Every day I just make a lot video just for improve myself and then I think to sales . Just focus on that ...
 
+# Being a giver 
+
+
+
