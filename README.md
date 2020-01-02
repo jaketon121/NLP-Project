@@ -1,4 +1,9 @@
 
+# NLP只是一片药丸
+
+人再神也是人记住，只是说NLP心理学科学领域分支被神话了而已。  嵌入NLP只能说像永无止境里头一样吃了一片药丸，你永远无法保持持久的清醒。
+
+
 # 12 Week MENTORSHIP Program
 
 # NLP-调整策略 - strategy to scale up 放大营销 
