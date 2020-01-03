@@ -1,4 +1,12 @@
 
+
+# 老薛主机 （虚拟主机）与西部数码（域名）
+我就不能在同一个地方买？  不行哦，发现价格不实惠就跑到其他地方了。
+http://www.laoxuehost.com/   8721@q.com TUdou
+https://www.west.cn zeison 密码忘了
+
+
+
 # 定位
 果儿Victoria
 https://www.weibo.com/guoervictoria
