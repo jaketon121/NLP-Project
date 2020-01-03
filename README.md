@@ -5,6 +5,8 @@
 http://www.laoxuehost.com/   8721@q.com TUdou
 https://www.west.cn zeison 密码忘了
 
+建站不容易，抓稳别丢了，记住续费，一劳永逸的事情！  要不然以后再重新弄很麻烦！
+
 
 
 # 定位
