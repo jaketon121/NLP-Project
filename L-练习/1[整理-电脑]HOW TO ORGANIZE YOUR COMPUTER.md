@@ -12,7 +12,7 @@ as important as keeping your place organized.
 
 Here are the rules for organizing your computer:
 
-• Keep a clean desktop (with nothing on it but the recycling bin)
+• Keep a clean desktop (with nothing on it but the recycling bin) (保持一个干净整洁的桌面)
 
 • Keep all your useful icons pinned to your task bar
 
