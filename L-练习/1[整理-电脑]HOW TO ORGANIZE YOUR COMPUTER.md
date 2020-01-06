@@ -14,7 +14,7 @@ Here are the rules for organizing your computer:
 
 • Keep a clean desktop (with nothing on it but the recycling bin) (保持一个干净整洁的桌面)
 
-• Keep all your useful icons pinned to your task bar
+• Keep all your useful icons pinned to your task bar （将感觉最有用的 和经常用的图标放入任务兰）
 
 • Put things in their proper folder (i.e. videos in video folder)
 
@@ -28,7 +28,7 @@ instead clip articles to your Evernote)
 
 •	 Organize your computer (making sure you do all the above) every month
 
-•	 Back up your important fles to a portable hard drive every quarter
+•	 Back up your important fles to a portable hard drive every quarter （备份我觉得还是每周或者感觉特别需要备份的时候备份一下，最好三两天备份一下 养成习惯）
 
 When it comes to organizing your computer every month, it’s easy. Just take everything you’ve
 downloaded that month (be it pictures, videos, books or documents) and either delete it or add
@@ -44,3 +44,6 @@ every quarter.
 
 # 每个月用日历提醒一下自己整理电脑 - 个人觉得每周好一点，像我这种高频使用电脑的人，应该的。还有清理电脑的桌面以及屏幕，还有电脑里面的桌面。
 
+ - 个人感受 - 再找一些tips吧，他的tips 不全，无法令到我彻底的整理到电脑。 大概的整理框架他是有说的 。好吧，可以。
+ 
+ 
