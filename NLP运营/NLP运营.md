@@ -25,6 +25,10 @@ https://www.douban.com/group/443985/?ref=sidebar  Life Topic Club-晓城资源�
 # 单词 - vocabulary单词网  2020-01-08
 
 https://www.vocabulary.com/
+
+# 技能学习尝试 - 技能分享skillshare网  - 2020-01-08
+
+https://www.skillshare.com/ 
 --------------------------------------------------------------------------------------
 
 
