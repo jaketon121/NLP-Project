@@ -8,7 +8,8 @@
 
 这里我记录的不仅仅是运营的工程， 还有其他的工程项目，包括练习和Hack，track的todolist ，各种练习，各种事项计划等等。
 
-# 豆瓣小组 - 2020-01-07
+# 公众号 - 2020 -01-09
+# 豆瓣小组 - 2020-01-09
 
 https://www.douban.com/group/443985/?ref=sidebar  Life Topic Club-晓城资源站
 
@@ -18,7 +19,7 @@ https://www.douban.com/group/443985/?ref=sidebar  Life Topic Club-晓城资源�
 
 # 各类谋略交流群 -2020-01-07 
 
-# 浪奔浪流的QQ空间与说说 - 2020-01-07 
+# 浪奔浪流的QQ空间与说说 - 2020-01-09 
 
 # 听书三章 - 法师奥义 - 2020-01-08 
 
