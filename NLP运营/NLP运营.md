@@ -22,7 +22,7 @@ https://www.douban.com/group/443985/?ref=sidebar  Life Topic Club-晓城资源�
 
 # 浪奔浪流的QQ空间与说说 - 2020-01-09 
 
-# 听书三章 - 法师奥义 - 2020-01-08 
+# 听书三章 - 法师奥义 - 2020-01-09 - 第三章结束
 
 # 单词 - vocabulary单词网  2020-01-08
 
