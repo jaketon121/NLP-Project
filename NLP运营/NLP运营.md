@@ -23,7 +23,7 @@ https://mp.weixin.qq.com/
 
 https://www.douban.com/group/443985/?ref=sidebar  Life Topic Club-晓城资源站
 
-# 达目标 APP记录 - 2020-01-08 
+# D-达目标 APP记录 - 2020-01-12 
 
 # 知识星球 - 2020-01-08
 
