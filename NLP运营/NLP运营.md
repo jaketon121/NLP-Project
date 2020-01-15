@@ -29,7 +29,7 @@ https://www.douban.com/group/443985/?ref=sidebar  Life Topic Club-晓城资源�
 
 http://www.nlp.cn/ 
 
-# 知识星球 （备货10！！检查一下每天有没有10的备货！ 没有就今天马上弄！）- 2020-01-12
+# 知识星球 （备货10！！检查一下每天有没有10的备货！ 没有就今天马上弄！）- 2020-01-15
 
 # 各类谋略交流群 -2020-01-15 
 
@@ -45,7 +45,7 @@ https://www.vocabulary.com/
 
 https://www.skillshare.com/ 
 
-# 收藏夹整理 2020-01-09
+# 收藏夹整理 2020-01-15
 
 # Side hustle - 五笔 - 2020-01-10  
 
