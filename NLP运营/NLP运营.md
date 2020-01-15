@@ -19,7 +19,7 @@ https://mp.weixin.qq.com/
 
 先学习15-30 公众号操作 运营体系 - 然后开始准备Post内容 至少备10天的内容， 最近发现缺少这方面的准备才导致自己出不来文而滞后。
 
-# 豆瓣小组 - 2020-01-11
+# 豆瓣小组 - 2020-01-15
 
 https://www.douban.com/group/443985/?ref=sidebar  Life Topic Club-晓城资源站
 
