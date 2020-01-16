@@ -99,7 +99,7 @@ http://tieba.baidu.com/f?kw=%E4%BA%94%E7%AC%94&ie=utf-8&tp=0
 
 # 储存库 - 记得常来看看就好 - 2020-01-10
 
-http://www.ys168.com/  永梭E盘
+http://www.ys168.com/  永梭E盘 - http://zeison.ys168.com   - zeison tud taijibagua163,c  187 92 0573
 
 - trello - 2020 -01-10
 
