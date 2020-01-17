@@ -14,7 +14,7 @@
 
 872139568@ caixiaoqin
 
-# 公众号 - 2020 -01-10
+# 公众号 - 2020 -01-17
 https://mp.weixin.qq.com/
 
 先学习15-30 公众号操作 运营体系 - 然后开始准备Post内容 至少备10天的内容， 最近发现缺少这方面的准备才导致自己出不来文而滞后。
@@ -41,7 +41,7 @@ http://www.nlp.cn/
 
 https://www.vocabulary.com/
 
-# 技能学习尝试 - 技能分享skillshare网  - 2020-01-08
+# 技能学习尝试 - 技能分享skillshare网  - 2020-01-17
 
 https://www.skillshare.com/ 
 
