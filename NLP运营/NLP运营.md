@@ -13,6 +13,7 @@
 
 # NLP运营介绍 
 http://nlpyourlife01.pixnet.net/blog - 台湾NP
+https://mentor-nlp.com/  
 
 这里我记录的不仅仅是运营的工程， 还有其他的工程项目，包括练习和Hack，track的todolist ，各种练习，各种事项计划等等。
 
