@@ -15,6 +15,7 @@
 http://nlpyourlife01.pixnet.net/blog - 台湾NP
 - https://mentor-nlp.com/  
 - https://mentor-nlp.com/category/%e7%99%be%e7%a7%91%e6%96%87%e7%ab%a0%e5%af%b6/nlp%e7%99%be%e7%a7%91%e6%96%87%e7%ab%a0/
+- https://qnlp.pixnet.net/blog  NLP文案力 第一期 
 这里我记录的不仅仅是运营的工程， 还有其他的工程项目，包括练习和Hack，track的todolist ，各种练习，各种事项计划等等。
 
 # 知识星球 （备货10！！检查一下每天有没有10的备货！ 没有就今天马上弄！）- 2020-01-26 
