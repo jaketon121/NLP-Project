@@ -9,7 +9,7 @@
 发现自己运营目标太多，跟不上了， 确实如此啊。 醒悟太迟吃亏太多太久。 哎， 找三个领域最重要的一件核心模块来运作吧。  总共三件，做完之后再考虑要不要做其他东西，是放松还是干嘛可以自己选择。   当然我现在想要的选择是 extra hour to work to learn .
 
 
-
+# body transformation
 
 # NLP运营介绍 
 http://nlpyourlife01.pixnet.net/blog - 台湾NP
