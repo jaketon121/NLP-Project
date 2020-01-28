@@ -51,7 +51,7 @@ http://www.xczyz.club/
 
 
 
-# 豆瓣小组 - 2020-01-23 时隔2
+# 豆瓣小组 - 2020-01-28  时隔4天 还行 一般 没人来 需要引流 和推广 seo等等 弄一下 
 
 https://www.douban.com/group/443985/?ref=sidebar  Life Topic Club-晓城资源站
 
