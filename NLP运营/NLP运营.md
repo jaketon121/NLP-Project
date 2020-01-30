@@ -78,11 +78,11 @@ http://www.nlp.cn/
 
 
 
-# 单词 - vocabulary单词网  2020-01-15
+# 单词 - vocabulary单词网  2020-01-30 时隔15天
 
 https://www.vocabulary.com/
 
-# 技能学习尝试 - 技能分享skillshare网  - 2020-01-26 至少每天一个课程做到这个就可以了 不要求多
+# 技能学习尝试 - 技能分享skillshare网  - 2020-01-26 至少每天一个课程做到这个就可以了 不要求多 - 2020-01-30
 
 https://www.skillshare.com/ 
 
