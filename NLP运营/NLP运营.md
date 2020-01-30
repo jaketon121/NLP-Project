@@ -158,7 +158,7 @@ http://www.ys168.com/  永梭E盘 - http://zeison.ys168.com   - zeison tud taiji
 https://www.bilibili.com/video/av8819726?from=search&seid=6307649018471301656
 （使用它的好处 -不用鼠标一直排版 而是专注于码字就可以了）
 
-- 学做网站论坛 - https://www.xuewangzhan.net/  - 2020 - 01-29 按照进度算 没有进度只记录日期  有进度就 日期+进度  - 目标大概是预计今年年底2021 完成 建站以及SEO等操作 上架虚拟产品等等 sales ...
+- 学做网站论坛 - https://www.xuewangzhan.net/  - 2020 - 01-30 按照进度算 没有进度只记录日期  有进度就 日期+进度  - 目标大概是预计今年年底2021 完成 建站以及SEO等操作 上架虚拟产品等等 sales ...
 
 - 练车  - 2020-01-13 周一   （预估下次预约大概 周五  17号 ） 
 
