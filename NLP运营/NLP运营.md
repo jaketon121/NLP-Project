@@ -14,6 +14,9 @@
 
 # body transformation
 
+- 20200224 青蛙坐 Oleg （Not Enough）
+
+
 # NLP运营介绍 
 http://nlpyourlife01.pixnet.net/blog - 台湾NP
 - https://mentor-nlp.com/  
