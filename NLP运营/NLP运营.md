@@ -36,8 +36,8 @@ https://mp.weixin.qq.com/
 # 股票 
  2020-01-26 去bilibili 看视频学习 - https://www.bilibili.com/video/av33505958?from=search&seid=6485433327497501425
  
-# 晓城资源站 - 2020 -01 - 26 
-http://www.xczyz.club/ 
+# 晓城资源站 - 2020 -02 - 25 
+- http://www.xczyz.club/   - 未开始
 
 
 # 听书三章 - 法师奥义 - 2020-01-15 - 第三章结束
