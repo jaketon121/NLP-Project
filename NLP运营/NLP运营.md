@@ -27,13 +27,19 @@ http://nlpyourlife01.pixnet.net/blog - 台湾NP
 
 # D-达目标 APP记录 - 2020-03-15
 
- 
+# 豆瓣小组 -  时隔4天 还行 一般 没人来 需要引流 和推广 seo等等 弄一下 
+
+- 豆瓣小组 我打算切成不同的小系统来发布  先人际- 后学会了-知识架构有了-练习有了- 学会了 - 然后在发布其他一个。 人际关系=个人发展+时间管理+恋爱婚姻+职场 也可以都发布很多的，人际关系不仅仅包含人际关系之间的东西，还有很多 易经也可以参考。
+
+- 2020-03-15 
+
+https://www.douban.com/group/443985/?ref=sidebar  Life Topic Club-晓城资源站
+
 # 晓城资源站 - 2020 -02 - 25 
 - http://www.xczyz.club/   - 未开始
 
 
 # 听书三章 - 法师奥义 - 2020-01-15 - 第三章结束
-
 
 
 # 一步步教你通过Youtube月赚2000美元 2020-
@@ -43,14 +49,6 @@ http://nlpyourlife01.pixnet.net/blog - 台湾NP
 我主号 - http://blog.sina.com.cn/u/2007451291  
 
 872139568@ caixiaoqin
-
-
-
-# 豆瓣小组 - 2020-01-28  时隔4天 还行 一般 没人来 需要引流 和推广 seo等等 弄一下 
-
-https://www.douban.com/group/443985/?ref=sidebar  Life Topic Club-晓城资源站
-
-
 
 # D-每日资讯 - 2020-01-15
 
@@ -80,8 +78,6 @@ http://www.nlp.cn/
 
 
 
-
-
 # 单词 - vocabulary单词网  2020-01-30 时隔15天
 
 https://www.vocabulary.com/
@@ -90,7 +86,7 @@ https://www.vocabulary.com/
 
 https://www.skillshare.com/ 
 
-# 收藏夹整理 2020-01-15
+# 收藏夹整理 2020-03-15
 
 # Side hustle - 五笔 - 2020-01-10  
 
